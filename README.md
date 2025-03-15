@@ -1,6 +1,6 @@
-# Quran Chapter 1 | [QuranBookk.com](http://www.quranbookk.com/) 
+# [Quran Chapter 22](https://www.quranbookk.com/quran/search?q=22:) | QuranBookk.com 
 
-For more infos, Click [QuranBookk - 1](https://www.quranbookk.com/quran/search?q=1:) to Search at [QuranBookk.com](http://quranbookk.com/)
+For more infos, Click [QuranBookk - 22](https://www.quranbookk.com/quran/search?q=22:) to Search at [QuranBookk.com](http://quranbookk.com/)
 
 
 # QuranBookk.com - Quran | [QuranBook](https://www.quranbookk.com)
